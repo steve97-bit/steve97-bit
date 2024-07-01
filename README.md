@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... k
 - 📫 How to reach me ... +961-81371745
 - 😄 Pronouns: ... he/him
-- ⚡ Fun fact: ... youre my life <3
+- ⚡ Fun fact: ... youre my life <3 love wins <3
 
 <!---
 steve97-bit/steve97-bit is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
